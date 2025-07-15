@@ -1,1 +1,0 @@
-# menim proyectim
